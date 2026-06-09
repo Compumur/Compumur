@@ -20,4 +20,4 @@ We hope to be something more that that on the future! This will start when you t
 
 **I have a question**
 
-Ask me <a href="mailto:pescaoooopipi@gmail.com">here</a>!
+Ask me <a href="mailto:pescaoooopipi@gmail.com">here</a>! (If you know anyone with the same question, share the answer)
